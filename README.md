@@ -1,9 +1,7 @@
   Telegram channel: https://t.me/efootballCheaterReport
-  
-  Telegram group: https://t.me/eFootballxjbt
-  
-  Donation: https://www.paypal.com/paypalme/tacbin
 
+  Telegram group: https://t.me/eFootballxjbt
+ 
   Download : https://t.me/efootballCheaterReport/224
   
   
